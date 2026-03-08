@@ -1,2 +1,1 @@
-# petplaypartner-docs
-petplaypartnerdocs
+google.com, pub-9931679100471816, DIRECT, f08c47fec0942fa0
